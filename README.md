@@ -7,8 +7,8 @@ Computer Engineering And Digital Technology Chulalongkorn University
 
 
 ## What's my skills
-- Reserve poison
-- ![pis](https://static.wikia.nocookie.net/lolesports_gamepedia_en/images/5/5f/Contaminate.png/revision/latest?cb=20180130074721)
+- I can tranform to something like this...
+- ![pis](https://starlightaustralia.wordpress.com/wp-content/uploads/2010/08/fourarms_act_3.jpg?w=448&h=336)
 
 ## What did I Do
 - I snatch prey
