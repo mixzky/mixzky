@@ -6,12 +6,11 @@ Computer Engineering And Digital Technology Chulalongkorn University
 
 
 #What's my skills
-Reserve poison.
+- Reserve poison
 
 
 #What did I Do
-- I snatch prey.
-- 
+- I snatch prey
 ### Lloyd
 #### Rammus
 ##### 0/9
