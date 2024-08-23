@@ -3,7 +3,7 @@
 ### Lloyd
 #### Rammus
 ##### 0/9
-~~brrrrrrrrrr.~~
+~~ทีมไม่ไหวน้อง~~
 ![Ling](https://facts.net/wp-content/uploads/2023/12/15-baby-monkey-facts-1702697694.jpg)
 
 <!--
