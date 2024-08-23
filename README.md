@@ -7,7 +7,7 @@ Computer Engineering And Digital Technology Chulalongkorn University
 
 ## What's my skills
 - Reserve poison
-- ![pis](https://lol.fandom.com/wiki/Category:Ability_Icons?file=Contaminate.png)
+- ![pis](https://static.wikia.nocookie.net/lolesports_gamepedia_en/images/5/5f/Contaminate.png/revision/latest?cb=20180130074721)
 
 ## What did I Do
 - I snatch prey
