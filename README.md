@@ -2,9 +2,9 @@
   
 ![ben](https://static1.colliderimages.com/wordpress/wp-content/uploads/2023/12/ben-10-top-10-aliens.jpg?q=50&fit=crop&w=1100&h=618&dpr=1.5)
 
-I'm Ben Tennyson **"The owner of Omnitrix"** 
+𝑰❜𝒎 𝑩𝒆𝒏 𝑻𝒆𝒏𝒏𝒚𝒔𝒐𝒏 ❞𝑻𝒉𝒆 𝒐𝒘𝒏𝒆𝒓 𝒐𝒇 𝑶𝒎𝒏𝒊𝒕𝒓𝒊𝒙❞
 
-Computer Engineering And Digital Technology Chulalongkorn University
+𝑪𝒐𝒎𝒑𝒖𝒕𝒆𝒓 𝑬𝒏𝒈𝒊𝒏𝒆𝒆𝒓𝒊𝒏𝒈 𝑨𝒏𝒅 𝑫𝒊𝒈𝒊𝒕𝒂𝒍 𝑻𝒆𝒄𝒉𝒏𝒐𝒍𝒐𝒈𝒚 𝑪𝒉𝒖𝒍𝒂𝒍𝒐𝒏𝒈𝒌𝒐𝒓𝒏 𝑼𝒏𝒊𝒗𝒆𝒓𝒔𝒊𝒕𝒚
 
 
 ## What's my skills
