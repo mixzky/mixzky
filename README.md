@@ -1,6 +1,6 @@
 # *Who Am I* 🐍🐍🐍
 ![gnu](https://ddragon.leagueoflegends.com/cdn/img/champion/splash/Cassiopeia_0.jpg)
-I'm Khannapong Wangkrasaer (Mix)
+I'm Cassiopeia **The Serpent's Embrace** 
 
 
 Computer Engineering And Digital Technology Chulalongkorn University
