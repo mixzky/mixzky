@@ -1,8 +1,8 @@
-#### พี่ฉุนละ 😡😤
+# พี่ฉุนละ 😡😤
 
-# Lloyd
-# Rammus
-# 0/9
+### Lloyd
+#### Rammus
+##### 0/9
 
 <!--
 **mixzky/mixzky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
