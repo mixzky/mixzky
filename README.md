@@ -8,7 +8,9 @@ Computer Engineering And Digital Technology Chulalongkorn University
 
 ## What's my skills
 - I can tranform to something like this...
-- ![pis](https://starlightaustralia.wordpress.com/wp-content/uploads/2010/08/fourarms_act_3.jpg?w=448&h=336)
+  ![pis](https://starlightaustralia.wordpress.com/wp-content/uploads/2010/08/fourarms_act_3.jpg?w=448&h=336)
+- or this
+- 
 
 ## What did I Do
 - I snatch prey
