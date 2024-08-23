@@ -15,8 +15,8 @@ Computer Engineering And Digital Technology Chulalongkorn University
   ![huge](https://scontent.fbkk5-3.fna.fbcdn.net/v/t39.30808-6/393356282_731111885512139_7226464920075381645_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=bd9a62&_nc_ohc=q0YoT2Zl6awQ7kNvgGh6lrN&_nc_ht=scontent.fbkk5-3.fna&oh=00_AYBvPUcGh21S12VPDjYO8aZDKXSZq0DuxLOYJkOfhVomiA&oe=66CDF07F)
 
 ## What did I Do
-- I snatch prey
-![Ling](https://camo.githubusercontent.com/5565b4727ae2bae54bf81969ae786185b2824f032c53b24cb2b0a482d3d6a155/68747470733a2f2f66616374732e6e65742f77702d636f6e74656e742f75706c6f6164732f323032332f31322f31352d626162792d6d6f6e6b65792d66616374732d313730323639373639342e6a7067)
+- I have defeated so many viallians as you can see from this table
+![Ling](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/6f33bfe5-60b1-410b-a91d-7c6883e03fe9/dfa4s5y-63a8e737-e17a-43c8-848b-399a9d2c6392.png/v1/fit/w_828,h_536,q_70,strp/ben_10_villains_tier_list_by_roganthedcfan_dfa4s5y-414w-2x.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NzM5IiwicGF0aCI6IlwvZlwvNmYzM2JmZTUtNjBiMS00MTBiLWE5MWQtN2M2ODgzZTAzZmU5XC9kZmE0czV5LTYzYThlNzM3LWUxN2EtNDNjOC04NDhiLTM5OWE5ZDJjNjM5Mi5wbmciLCJ3aWR0aCI6Ijw9MTE0MCJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.zqelgEzM48WnenKKLGK7W_yr2bDMciNQL4TXsNHMJlQ)
 
 <!--
 **mixzky/mixzky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
