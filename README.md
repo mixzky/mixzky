@@ -3,6 +3,7 @@
 ### Lloyd
 #### Rammus
 ##### 0/9
+![Ling](https://facts.net/wp-content/uploads/2023/12/15-baby-monkey-facts-1702697694.jpg)
 
 <!--
 **mixzky/mixzky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
