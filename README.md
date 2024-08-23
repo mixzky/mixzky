@@ -1,5 +1,17 @@
-# พี่ฉุนละ 😡😤
+# Who Am I 🐍🐍🐍
+I'm Khannapong Wangkrasaer (Mix)
 
+
+Computer Engineering And Digital Technology Chulalongkorn University
+
+
+#What's my skills
+Reserve poison.
+
+
+#What did I Do
+- I snatch prey.
+- 
 ### Lloyd
 #### Rammus
 ##### 0/9
