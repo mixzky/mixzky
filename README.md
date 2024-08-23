@@ -15,7 +15,7 @@ Computer Engineering And Digital Technology Chulalongkorn University
 #### Rammus
 ##### 0/9
 ~~ทีมไม่ไหวน้อง~~
-![alt text]((https://i.ytimg.com/vi/aefault.jpg))
+![alt text]([https://i.ytimg.com/vi/aefault.jpg])
 
 <!--
 **mixzky/mixzky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
