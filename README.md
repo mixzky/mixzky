@@ -15,9 +15,7 @@ Computer Engineering And Digital Technology Chulalongkorn University
 #### Rammus
 ##### 0/9
 ~~ทีมไม่ไหวน้อง~~
-
-
-![jocho](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSdlKbFbIHSTum7wMfm7Dbm8QlCNGsAgKR30A&s)
+![Ling](https://camo.githubusercontent.com/5565b4727ae2bae54bf81969ae786185b2824f032c53b24cb2b0a482d3d6a155/68747470733a2f2f66616374732e6e65742f77702d636f6e74656e742f75706c6f6164732f323032332f31322f31352d626162792d6d6f6e6b65792d66616374732d313730323639373639342e6a7067)
 
 <!--
 **mixzky/mixzky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
