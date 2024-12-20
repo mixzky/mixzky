@@ -4,12 +4,8 @@
 <h3 align="left">Skills</h3>
 <p align="left">
   - C++
-  
   - Python
-    
   - Java (Studying)
-    
   - Golang (Studying)
-    
 </p>
 
