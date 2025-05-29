@@ -1,5 +1,5 @@
 <h1 align="center">Nice to meet you!🙇🏻‍♂️ I'm Mix</h1>
-<img width="853" height="400" alt="Profile" src="https://github.com/user-attachments/assets/f35c6b9b-be07-47ed-a9a0-58270d5a0cb8">
+<img width="853" height="400" alt="Profile" src="https://github.com/user-attachments/assets/8961f1c6-6f1b-48a3-a277-42720bd23ce0">
 
 <h3 align="center">A Computer Engineering Student from Thailand</h3>
 
